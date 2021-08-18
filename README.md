@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on... LOL, i'm still single. It 's so lonely but I'm still fine with that
 - 📫 How to reach me, this is my facebook: hi3.id1093393
 - Most game I play is Honkai Impact 3 and Genshin Impact. Sonmetime i read lightnovels has been boughted by me but i forgot read it.
-- I still play another game like ....
+- I still play another game like .... King's Raid, Princess Connect: Re Dive (Taiwan Server), CounterSide... Most of games I play is gacha game
 
 <!---
 2dgirlismywaifu/2dgirlismywaifu is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
