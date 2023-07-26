@@ -1,5 +1,14 @@
 # 💫 About Me:
-👋 Hi, I’m @2dgirlismywaifu (Just a nickname 😁)<br>👀 I’m interested in lightnovel, manga and anime. So most people call me a "weeb" guy<br>🌱 Python, C#, Java and Javascript and more in future<br>📫 How to reach me, this is my facebook: hi3.id1093393<br>⚡ Really love Unix Ricing in Reddit: r/Unixporn
+👋 Hi, I’m @2dgirlismywaifu (Just a nickname 😁)<br>
+👀 I’m interested in lightnovel, manga and anime. So most people call me a "weeb" guy<br>
+🌱 Python, C#, Java and Javascript and more in future<br>
+📫 How to reach me, this is my facebook: hi3.id1093393<br>
+⚡ Really love Unix Ricing in Reddit: r/Unixporn<br>
+🎮 List of most game i played:
+- Honkai Impact 3 (Almost 6 years old captain)
+- Genshin Impact (Too lazy to play)
+- Princess Connect: Re Dive (Another Gacha Game)
+- Honkai Star Rail (March 7th is Elysia’s Daughter, isn’t she ??? 🐧)
 
 
 # 💻 Tech Stack:
