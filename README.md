@@ -1,5 +1,5 @@
 # 💫 About Me:
-👋 Hi, I’m @2dgirlismywaifu (Just a nickname 😁)<br>👀 I’m interested in lightnovel, manga and anime. So most people call me a "weeb" guy<br>🌱 Python, C#, Java and Javascript and more in future<br>📫 How to reach me, this is my facebook: hi3.id1093393<br>⚡ Really love unix ricing in r/unixporn
+👋 Hi, I’m @2dgirlismywaifu (Just a nickname 😁)<br>👀 I’m interested in lightnovel, manga and anime. So most people call me a "weeb" guy<br>🌱 Python, C#, Java and Javascript and more in future<br>📫 How to reach me, this is my facebook: hi3.id1093393<br>⚡ Really love Unix Ricing in Reddit: r/Unixporn
 
 
 # 💻 Tech Stack:
