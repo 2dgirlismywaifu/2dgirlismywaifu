@@ -8,7 +8,7 @@
 - Honkai Impact 3 (Almost 6 years old captain)
 - Genshin Impact (Too lazy to play)
 - Princess Connect: Re Dive (Another Gacha Game)
-- Honkai Star Rail (March 7th is Elysia’s Daughter, isn’t she ??? 🐧)
+- Honkai Star Rail (Some characters same on Honkai Impact 3)
 
 
 # 💻 Tech Stack:
