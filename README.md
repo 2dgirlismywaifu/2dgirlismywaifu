@@ -8,7 +8,7 @@
 🎮 List of most game i played:
 - Honkai Impact 3 (Yes, now i am a captain with 6 years experience)
 - Genshin Impact (Whit me, it is dead from Fontaine update)
-- Princess Connect: Re Dive (Another Gacha ƯGame)
+- Princess Connect: Re Dive (Another Gacha Game)
 - Honkai Star Rail (Some characters same on Honkai Impact 3)
 
 
