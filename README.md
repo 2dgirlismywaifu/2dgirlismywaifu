@@ -6,9 +6,9 @@
 📫 How to reach me, this is my facebook: hi3.id1093393<br>
 ⚡ Really love Unix Ricing in Reddit: r/Unixporn<br>
 🎮 List of most game i played:
-- Honkai Impact 3 (Almost 6 years old captain)
-- Genshin Impact (Too lazy to play)
-- Princess Connect: Re Dive (Another Gacha Game)
+- Honkai Impact 3 (Yes, now i am a captain with 6 years experience)
+- Genshin Impact (Whit me, it is dead from Fontaine update)
+- Princess Connect: Re Dive (Another Gacha ƯGame)
 - Honkai Star Rail (Some characters same on Honkai Impact 3)
 
 
