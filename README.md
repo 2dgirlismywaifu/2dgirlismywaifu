@@ -5,11 +5,14 @@
 🌱 Python, C#, Java and Javascript and more in future<br>
 📫 How to reach me, this is my facebook: hi3.id1093393<br>
 ⚡ Really love Unix Ricing in Reddit: r/Unixporn<br>
+🔫 2023: Team Vitality get first Major CS:GO tropy and also it is a last Major of CS:GO<br>
+🔫 2024: Astralis cannot continue play PGL Major in them country (They deserved to lose, they dropped to the "Last Chance" bracket and then lost to the weaker rated team)<br>
 🎮 List of most game i played:
-- Honkai Impact 3 (Yes, now i am a captain with 6 years experience)
-- Genshin Impact (Whit me, it is dead from Fontaine update)
-- Princess Connect: Re Dive (Another Gacha Game)
-- Honkai Star Rail (Some characters same on Honkai Impact 3)
+- Honkai Impact 3: 10933939 (6 Years Old Player)
+- Genshin Impact 800294094 (No longer play anymore)
+- Princess Connect ReDive: 3666184303 (Taiwan Server)
+- Blue Archive (Singapore VPN)
+- Honkai Star Rail: 800944739
 
 
 # 💻 Tech Stack:
