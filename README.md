@@ -7,6 +7,7 @@
 ⚡ Really love Unix Ricing in Reddit: r/Unixporn<br>
 🔫 2023: Team Vitality get first Major CS:GO tropy and also it is a last Major of CS:GO<br>
 🔫 2024: Astralis cannot continue play PGL Major in them country (They deserved to lose, they dropped to the "Last Chance" bracket and then lost to the weaker rated team)<br>
+🔫 26/04/2024: G2 Esport lose M80 (Why Vertigo ??????)<br>
 🎮 List of most game i played:
 - Honkai Impact 3: 10933939 (6 Years Old Player)
 - Genshin Impact 800294094 (No longer play anymore)
