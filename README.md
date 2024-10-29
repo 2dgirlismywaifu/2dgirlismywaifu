@@ -1,5 +1,6 @@
 # 💫 About Me:
-👋 Hi, I’m @2dgirlismywaifu (Just a nickname 😁)<br>
+👋 Hello everyone, I 'm Ngo Thanh Long<br>
+👋 The nickname of this Github account is @2dgirlismywaifu<br>
 👨‍🎓 Student graduated from Hanoi Architecture of University<br>
 👀 I’m interested in lightnovel, manga and anime. So most people call me a "weeb" guy<br>
 🌱 Python, C#, Java and Javascript and more in future<br>
