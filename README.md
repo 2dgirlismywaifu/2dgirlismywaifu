@@ -9,6 +9,8 @@
 🔫 2023: Team Vitality get first Major CS:GO tropy and also it is a last Major of CS:GO<br>
 🔫 2024: Astralis cannot continue play PGL Major in them country (They deserved to lose, they dropped to the "Last Chance" bracket and then lost to the weaker rated team)<br>
 🔫 2024: G2 Esport beat NAVI after 9 times lose<br>
+🔫 2024: Missing Person: donk. Please call 1900-BốG2Tìm<br>
+🔫 2024: Perfect World Shanghai Major: Let 's see Major call Niko, m0nesy or NOT<br>
 🎮 List of most game i played:
 - Honkai Impact 3: 10933939 (6 Years Old Player)
 - Genshin Impact 800294094 (No longer play anymore)
