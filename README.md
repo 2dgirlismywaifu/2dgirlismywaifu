@@ -10,13 +10,14 @@
 🔫 2024: Astralis cannot continue play PGL Major in them country (They deserved to lose, they dropped to the "Last Chance" bracket and then lost to the weaker rated team)<br>
 🔫 2024: G2 Esport beat NAVI after 9 times lose<br>
 🔫 2024: Missing Person: donk. Please call 1900-BốG2Tìm<br>
-🔫 2024: Perfect World Shanghai Major: Let 's see Major call Niko, m0nesy or NOT<br>
+🔫 2024: Perfect World Shanghai Major: ~~Let 's see Major call Niko, m0nesy or NOT~~ Get `Donked` by Team Spirit<br>
 🎮 List of most game i played:
-- Honkai Impact 3: 10933939 (6 Years Old Player)
-- Genshin Impact 800294094 (No longer play anymore)
+- Honkai Impact 3: 10933939 (7 Years Old Player)
+- Genshin Impact 800294094 (Vietnamese text: Con ghẻ của Michos)
 - Princess Connect ReDive: 3666184303 (Taiwan Server)
-- Blue Archive (Singapore VPN)
+- Blue Archive (Singapore VPN - Thanks Kaspersky Plus 🤩🤩)
 - Honkai Star Rail: 800944739
+- Battlefield 1 (Premium Pass)
 
 
 # 💻 Tech Stack:
