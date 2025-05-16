@@ -6,11 +6,12 @@
 🌱 Python, C#, Java and Javascript and more in future<br>
 📫 How to reach me, this is my facebook: hi3.id1093393<br>
 ⚡ Really love Unix Ricing in Reddit: r/Unixporn<br>
-🔫 2023: Team Vitality get first Major CS:GO tropy and also it is a last Major of CS:GO<br>
-🔫 2024: Astralis cannot continue play PGL Major in them country (They deserved to lose, they dropped to the "Last Chance" bracket and then lost to the weaker rated team)<br>
-🔫 2024: G2 Esport beat NAVI after 9 times lose<br>
-🔫 2024: Missing Person: donk. Please call 1900-BốG2Tìm<br>
-🔫 2024: Perfect World Shanghai Major: ~~Let 's see Major call Niko, m0nesy or NOT~~ Get `Donked` by Team Spirit<br>
+<!--🔫 2023: Team Vitality get first Major CS:GO tropy and also it is a last Major of CS:GO<br>--->
+<!--🔫 2024: Astralis cannot continue play PGL Major in them country (They deserved to lose, they dropped to the "Last Chance" bracket and then lost to the weaker rated team)<br>--->
+<!--🔫 2024: G2 Esport beat NAVI after 9 times lose<br>--->
+<!--🔫 2024: Missing Person: donk. Please call 1900-BốG2Tìm<br>--->
+<!--🔫 2024: Perfect World Shanghai Major: ~~Let 's see Major call Niko, m0nesy or NOT~~ Get `Donked` by Team Spirit<br>--->
+🏢 There is no new activity on the source at the moment as I am busy with private sources at work.
 🎮 List of most game i played:
 - Honkai Impact 3: 10933939 (7 Years Old Player)
 - Genshin Impact 800294094 (Vietnamese text: Con ghẻ của Michos)
